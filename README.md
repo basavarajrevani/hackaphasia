@@ -1,1 +1,1 @@
-# hackaphasia
+In many parts of the world, including remote or underprivileged communities, millions of people do not have access to adequate education, which further hinders their chances and keeps them entrenched in poverty. The conventional modes of education usually are ineffective in addressing the varied needs and learning patterns of the disadvantaged sections. Such a situation creates a wide gap in educational achievements and impedes the acquisition of skills which are essential for social and economic development.
